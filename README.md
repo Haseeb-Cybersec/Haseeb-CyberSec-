@@ -1,4 +1,4 @@
-# Haseeb-CyberSec-
+# Haseeb-CyberSec
 ✨ My GitHub profile README — cybersecurity student, ethical hacking enthusiast, building in public
 # Hi, I'm Haseeb Khan
 
